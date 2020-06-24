@@ -1,0 +1,3 @@
+Pantera
+Cannibal Corpse
+Slayer
