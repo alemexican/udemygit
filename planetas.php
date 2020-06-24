@@ -3,3 +3,4 @@ Cannibal Corpse
 Slayer
 Cindy Lauper
 Mayhem
+Ramones
